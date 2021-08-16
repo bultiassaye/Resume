@@ -1,2 +1,2 @@
-# Assaye Bulti
-CV 
+Assaye Bulti
+bulti.ta@gmail.com
